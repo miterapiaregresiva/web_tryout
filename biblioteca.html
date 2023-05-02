@@ -1,0 +1,15 @@
+---
+layout: default
+title: Biblioteca de terapia regresiva
+---
+<h1>Libros recomendados</h1>
+
+<ul>
+  {% for libro in site.libros %}
+    <li>
+      <h2>{{ libro.title }}</h2>
+      <h3>{{ libro.author }}</h3>
+      <p>{{ author.content | markdownify }}</p>
+    </li>
+  {% endfor %}
+</ul>

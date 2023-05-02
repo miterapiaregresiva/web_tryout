@@ -1,0 +1,5 @@
+collections:
+  libros:
+    output: true
+  authors:
+    output: true

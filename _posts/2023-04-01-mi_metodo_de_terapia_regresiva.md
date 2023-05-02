@@ -1,0 +1,39 @@
+---
+layout: post
+author: miterapiaregresiva.com
+title: "Mi método de terapia regresiva"
+---
+#  Mi método de terapia regresiva
+Como terapeuta de terapia regresiva en la isla de Tenerife, estas son mis premisas:
+
+Mi forma de trabajar se basa en que la reencarnación es un hecho científicamente probado. Múltiples publicaciones demuestran que lo es. Estudios de experiencias cercanas a la muerte; recuerdos de vidas pasadas contrastados que muestran que una persona «x» existió y que lo recordado es cierto; xenoglosia en estado regresivo, etcétera
+
+Muchos/as autores/as han escrito sobre este tema, mujeres y hombres de ciencia con prestigiosas carreras profesionales que llegaron a la misma conclusión: la reencarnación existe, hemos vivido otras vidas y seguiremos haciéndolo. Autores/as como Helen Wambach, Ian Stevenson, Raymond A. Moody, Brian Weiss, Michael Newton, Patrick Drouot, etc (Alguno de los cuales puedes leer en la sección de biblioteca). Mi experiencia ha sido la misma, sin embargo, no es necesario creer en ella para que este tipo de terapia funcione. Tanto si se trata de un recuerdo de otra vida como si se le considera una construcción de la mente, el efecto de revivir esa experiencia, sea real o ficticia, produce efectos positivos sobre quien lo experimenta.
+
+## Lo que vas y no vas a encontrar en mi consulta de terapia regresiva en Tenerife
+No soy psicóloga ni médico y no pretendo sustituir a dichos profesionales. Este tipo de terapia puede ayudar, pero nunca sustituir a las anteriores. Si presentas una enfermedad física, acude a un/a médico, por favor. Si presentas una enfermedad mental, recurre a la psiquiatría o la psicología, según corresponda.  ¿Quieres , además de recibir la atención sanitaria anteriormente citada, recurrir a este tipo de terapia? En muchos casos es posible hacerlo, pero si presentas algún tipo de enfermedad mental con desconexión de la realidad, debes saber que la Terapia Regresiva está contraindicada. Tampoco trabajo con niños y niñas porque considero que su mente no está preparada aún para encajar este tipo de experiencias.
+
+No soy superior a nadie ni una iluminada ni nada por el estilo, sólo soy una persona normal, que, de forma responsable, realiza su labor. Por tanto, si buscas una gurú, no soy tu persona. La Terapia Regresiva es un trabajo serio, con una estructura, un método y un objetivo.
+
+La terapia tiene un principio y un fin, no se eterniza. Es un proceso corto, de entre 6  y 12 sesiones. Cada sesión tiene una duración de una hora y media, excepto la primera, que puede durar hasta dos horas.
+
+Soy una profesional formada, con estudios universitarios, preparada y con experiencia. Una persona responsable, puntual, con seriedad en su labor. Soy empática, respetuosa  y con una clara vocación de ayuda.
+
+Por supuesto que contarás con confidencialidad (¡faltaría más!), me rijo por los principios éticos de cualquier profesional que trabaja con y para personas.
+
+No realizo intervención a distancia, únicamente sesiones de terapia regresiva en Tenerife. Considero que estar cara a cara es muy importante y que no podría acompañar a la persona adecuadamente a través de una pantalla de ordenador.
+
+Me gusta esta labor y me siento realizada con ella.
+
+Como te he dicho anteriormente, tengo la certeza de que la reencarnación existe. Trabajo desde esa creencia, pero respeto las tuyas. Me gusta dejar esto muy claro porque no realizo ningún tipo de adoctrinamiento.
+
+## Mi método de trabajo de terapia regresiva.
+Mi método de trabajo presenta una programación y estructura:
+
+. Entrevista inicial  
+
+. Desarrollo de las sesiones.
+
+ Además de emplear la regresión como herramienta, utilizo en consulta otro tipo de ejercicios con el objetivo de ayudarte a integrar y enfocar de forma adecuada los contenidos que vayan saliendo en  tus recuerdos. Paralelamente a dichas sesiones, fuera del horario de consulta, realizaré las labores de estudio del caso, evaluación del proceso terapéutico y programación de las siguientes sesiones a realizar.
+
+Si deseas conocer más detalles sobre mi método, no dudes en escribirme un mail y ponerte en contacto conmigo.
